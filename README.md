@@ -1,4 +1,5 @@
-![Untitled(1)](https://cdn.discordapp.com/attachments/972870449639866462/972899172690825216/Untitled_1.jpg)
+![Untitled(2)](https://user-images.githubusercontent.com/96881959/170818564-27b26908-f554-4917-928d-754e9e1aee36.png)
+
 # Rules
 ` 1 ` Be respectful, civil, and welcoming.
 

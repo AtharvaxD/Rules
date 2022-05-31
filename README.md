@@ -1,4 +1,4 @@
-![Untitled(2)](https://user-images.githubusercontent.com/96881959/170818564-27b26908-f554-4917-928d-754e9e1aee36.png)
+![rules](https://user-images.githubusercontent.com/96881959/171179728-c8631abe-18c2-4685-8291-aa66b39861c0.png)
 
 # Rules
 ` 1 ` Be respectful, civil, and welcoming.
